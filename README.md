@@ -1,0 +1,2 @@
+# https-coneccconcrete.com-blog-What-are-aacblocks
+AAC or Autoclaved Aerated Concretes are precast, lightweight, foam concrete building material that is good for producing concrete units like blocks. It contains quartz sand, cement, lime, water, gypsum, and aluminum powder. These are autoclaved under heat and pressure. The AAC Blocks that are made from these AAC materials are more lightweight and more durable than traditional blocks
